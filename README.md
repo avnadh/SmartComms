@@ -1,0 +1,2 @@
+# SmartComms
+Privacypolicy
